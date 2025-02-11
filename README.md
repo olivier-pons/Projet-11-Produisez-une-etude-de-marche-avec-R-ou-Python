@@ -17,12 +17,12 @@ Soft skills acquis :
 - Adapter son dicours a son auditoire
 
 Commentaires de l'évaluateur
-Livrable
+Livrables :
 
-Points forts :
+Points forts : Tous les livrables sont présents et réalisés avec sérieux. Ils répondent aux attentes du projet.
 
-Axes d'amélioration :
+Axes d'amélioration : Vous pouvez approfondir les notions que vous avez travaillé sur ce projet. Votre analyse pourrait être plus pertinente du point de vue business. 
 
 Soutenance
 
-Remarques : OK
+L'oral est satisfaisant pour valider ce projet.
